@@ -1,0 +1,2 @@
+# GomenneLINE
+謝るLINE
